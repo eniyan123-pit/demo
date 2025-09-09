@@ -5,3 +5,5 @@ I have an interest in coding, so I selected computer field.
 My Father name is Balasubramanian. My Mother name is Gayathri.
 I have an one elder brother and his name is Adhiyan.
 My Father is an Buisnesman. My Mother is an House wife.
+My ispiration is periyar. periyar is an great social reformer and leader who dedicated his entire life to fighting against inequility.
+He strongly believed in Education.
